@@ -8,4 +8,3 @@
 - 📫 How to reach me: Are you sure?
 - 😄 Pronouns: He/Him
 - ⚡ Fun fact: I'be never seen Scarface
--->
